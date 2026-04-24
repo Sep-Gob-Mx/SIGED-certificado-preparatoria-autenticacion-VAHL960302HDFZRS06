@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VAHL960302HDFZRS06
+VAHL960302HDFZRS06
